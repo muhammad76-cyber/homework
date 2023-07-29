@@ -1,2 +1,0 @@
-CODEACADEMY
-soolev muhammad
